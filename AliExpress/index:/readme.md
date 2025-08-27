@@ -1,2 +1,3 @@
 - [10A/50A/100A Digital Voltmeter Ammeter Dual LED Display Voltage Current Meter Multifunctional Digital Volt Meter Instrument Tool](https://www.aliexpress.us/item/3256809532133387.html)
 - [Digital Voltmeter Ammeter AC 300V 100A Panel Amp Volt Meter Voltage Current Tester Monitor Panel](https://www.aliexpress.us/item/3256809129242827.html)
+- [85-2042AG AC Voltage and Current Meter Digital Display Dual Display LCD Color Display 220V 380V 100A 200A](https://www.aliexpress.us/item/3256808828031458.html)
